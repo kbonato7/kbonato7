@@ -1,4 +1,3 @@
-# 👩🏻‍💻 Karina Bombonato
 
 **`Estudante de Ciência da Computação`**
 
